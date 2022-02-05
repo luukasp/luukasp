@@ -9,3 +9,4 @@
   - Discord (My Company's Community Server): https://discord.gg/C42UczVmWm
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Strategy game enthusiast
+  - Note: I like optimizing my workflow, so I do everything in my power to reduce time between actions.
