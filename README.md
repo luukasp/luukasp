@@ -1,6 +1,6 @@
 ### Hi there 👋
 - Hi, I'm Luukas
-- I am the interim Cookie @SilverzoneGames
+- I am the interim Cookie @Silverzonegames
 - 🔭 I’m currently working on Game and Web Development
 - 🌱 I’m currently learning Project Management and Business Law
 - 👯 I'm currently not looking to collaborate in anything outside my work.
