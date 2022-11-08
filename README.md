@@ -1,12 +1,14 @@
 ### Hi there 👋
-- Hi, I'm Luukas (@luukasp)
+- Hi, I'm Luukas
+- I am the interim Cookie @SilverzoneGames
 - 🔭 I’m currently working on Game and Web Development
-- 🌱 I’m currently learning Hybrid Identity solutions, Project Management and Web Development
-- 👯 I'm currently not looking to collaborate in anything outside my company's projects. Will collaborate on other thins later though
+- 🌱 I’m currently learning Project Management and Business Law
+- 👯 I'm currently not looking to collaborate in anything outside my work.
 - 📫 How to reach me: 
-  - Email: luukas.paukkonen@gmail.com or stepbro.daling@outlook.com
-  - Discord (Private): Da~ling#2266
-  - Discord (My Company's Community Server): https://discord.gg/C42UczVmWm
+  - Personal Email: luukas.paukkonen@gmail.com or stepbro.daling@outlook.com
+  - Business Email: luukasp@silverzone.co
+  - Discord: Da~ling#2266. No I will not add you or respond to stupid DMs. Inquiries are fine though.
+  - My company's Discord community: https://discord.gg/ggjnDFQ7e8
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Strategy game enthusiast
   - Note: I like optimizing my workflow, so I do everything in my power to reduce time between actions.
