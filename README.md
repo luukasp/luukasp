@@ -6,7 +6,7 @@
 - 👯 I'm currently not looking to collaborate in anything outside my work.
 - 📫 How to reach me: 
   - Personal Email: luukas.paukkonen@gmail.com or stepbro.daling@outlook.com
-  - Business Email: luukasp@silverzone.co
+  - Business Email: luukasp@silverzonegames.com
   - Discord: Da~ling#2266. No I will not add you or respond to stupid DMs. Inquiries are fine though.
   - My company's Discord community: https://discord.gg/ggjnDFQ7e8
 - 😄 Pronouns: He/Him
