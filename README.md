@@ -6,7 +6,7 @@ I'm currently a student in high school and am aiming to get to a commerce line i
 
 ## How to contact me
 Email: [luukasp@silverzonegames.com](mailto:luukasp@silverzonegames.com) <br>
-Discord: NekoFromIT#2266. No, I will not add you or respond to stupid questions. <br>
+Discord: @nekofromit. No, I will not add you or respond to stupid questions. <br>
 [Silverzone's Discord](https://discord.gg/ggjnDFQ7e8) <br>
 [LinkedIn](https://linkedin.com/in/luukasp) <br>
 [Twitter](https://twitter.com/nekofromit)
