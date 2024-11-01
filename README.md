@@ -1,5 +1,5 @@
 # Hi
-I'm Luukas Paukkonen, Co-founder and Game Designer at [Silverzone Oy](https://silverzonegames.com/about). I'm more than interested in game design and development alongside being a huge nerd. I am a huge automization and optimization fan, I'll do everything in my power to automate and optimize my work. I also work closely with Silverzone's information security and management teams.
+I'm Luukas Paukkonen, Co-founder and Game Designer at [Silverzone Interactive Oy](https://silverzonegames.com/about). I'm more than interested in game design and development alongside being a huge nerd. I am a huge automization and optimization fan, I'll do everything in my power to automate and optimize my work. I also work closely with Silverzone's information security and management teams.
 
 I'm also a streamer and content creator on my free time.
 
