@@ -21,7 +21,8 @@ I like to play video games and watch other people play them too (albeit my YouTu
 As for my other hobbies, I like cycling and swimming in the summer and ice skating in the winter. I also draw digitally sometimes.
 
 ## How to contact me
-Email: luukas.paukkonen@gmail.com (Old business email got retired as we ended our contract with our provider, waiting for new deployment) <br>
+Email: luukas.paukkonen@silverzonegames.com <br>
+Email (personal) luukasp@nekofromit.com
 Discord: @nekofromit. No, I will not add you or respond to stupid questions. <br>
 [Silverzone's Discord](https://discord.gg/ggjnDFQ7e8) <br>
 [LinkedIn](https://linkedin.com/in/luukasp) <br>
